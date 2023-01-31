@@ -1,2 +1,0 @@
-# MtchedlishviliLevani-QR-Code--Component-
-
